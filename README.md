@@ -1,0 +1,2 @@
+# galanggans
+Apa njenk:v
